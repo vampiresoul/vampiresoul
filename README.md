@@ -1,4 +1,4 @@
-![hdr](https://github.com/vampbite/vampbite/assets/145265219/d1caa723-7dd5-4582-96a4-d1e4ccd6e6ea)
+![hdr (1)](https://github.com/vampbite/vampbite/assets/145265219/a5f94064-5c20-4401-b718-8232b913acce)
 
 > **aless!**
 
