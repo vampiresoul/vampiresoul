@@ -2,7 +2,7 @@
 
 > **aless!**
 
-౨ৎ
+★
 
 read rentry b4 interacting
 
