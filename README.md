@@ -11,6 +11,7 @@ im afk or offtab most of the time w2i
 free to c+h unless im sitting w some1 else
 
 -13 / 18+ dni
+> write in guestbook!! :3
 
 
 
