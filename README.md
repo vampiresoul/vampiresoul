@@ -1,6 +1,6 @@
-<p align="center"> <img width="1000" src="https://media.discordapp.net/attachments/1104186775754244166/1131690600417198150/0FFEC6BC-D5AE-4EB8-AE17-CCC883479637.png">
+<p align="center"> <img width="1000" src="https://cdn.discordapp.com/attachments/914477228098732083/1159006694492356608/tumblr_2e939232f12bec48465972ed5db26c2b_e47e7999_540.png?ex=65e80619&is=65d59119&hm=19bb2de9c215fdefae076d8af4d566263eef112b428aa101804e6ce2cd346b4c&">
 <p align="center"> aless! she ﾉ her 5teen 
-<p align="center"> <img width="500" src="https://cdn.discordapp.com/attachments/675610269699014710/1205516090940325919/tumblr_a131166dbac359ea2e8fe7f76c768f12_d6e70911_1280.png?ex=65d8a759&is=65c63259&hm=2d9e40bc758aaeb51cb7c5ef1d3c208e534036c8d8319e313cc4e3728f610cd3&">
+<p align="center"> <img width="700" src="https://cdn.discordapp.com/attachments/675610269699014710/1210681991062622218/Tumblr_l_12583634439660854.gif?ex=65eb7278&is=65d8fd78&hm=5db7d13aca7ad08479c37d7276de26c773f6c1f60b5fc3fe870e6a7104e8e43c&">
 
 <div align="center"> 
   
@@ -10,4 +10,4 @@
 
   -13 / 18+ dniㅤfree to c+h unless im sitting w some1 elseㅤwhisp2int
   
-<p align="center"> <img width="1000" src="https://media.discordapp.net/attachments/1104186775754244166/1131690600777920612/E031B25D-FC44-451E-9261-873945E23E19.png">
+<p align="center"> <img width="1000" src="https://cdn.discordapp.com/attachments/675610269699014710/1210680413639680030/AnyConv.com__black_divider.png?ex=65eb70ff&is=65d8fbff&hm=3eca54e8261f5818274151165dd009fb05ac155f1901aeb16ad56e25ab028113&">
