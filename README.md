@@ -1,6 +1,6 @@
 <p align="center"> <img width="1000" src="https://cdn.discordapp.com/attachments/914477228098732083/1159006694492356608/tumblr_2e939232f12bec48465972ed5db26c2b_e47e7999_540.png?ex=65e80619&is=65d59119&hm=19bb2de9c215fdefae076d8af4d566263eef112b428aa101804e6ce2cd346b4c&">
 <p align="center"> aless! she ﾉ her 5teen ro/eng
-<p align="center"> <img width="700" src="https://cdn.discordapp.com/attachments/675610269699014710/1210681991062622218/Tumblr_l_12583634439660854.gif?ex=65eb7278&is=65d8fd78&hm=5db7d13aca7ad08479c37d7276de26c773f6c1f60b5fc3fe870e6a7104e8e43c&">
+<p align="center"> <img width="500" src="https://cdn.discordapp.com/attachments/675610269699014710/1210693274092961792/Untitled5_20240223225900.png?ex=65eb7cfa&is=65d907fa&hm=f02e312cfb690b96cee0c57efed87db024355d3894b83652e76c7cb99cdb8022&">
 
 <div align="center"> 
   
