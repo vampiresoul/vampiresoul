@@ -1,6 +1,6 @@
 <p align="center"> <img width="1000" src="https://64.media.tumblr.com/27fd0cec23e2f48a74a2264d96d28490/ee09abb08cabc6f1-a8/s400x600/d30a6f4a80011b32afb8180bde1db82f712a73ee.pnj">
 <p align="center"> aless! she ﾉ her 6teen ro/eng
-<p align="center"> <img width="800" src="https://64.media.tumblr.com/2ee6c3cffb752b4bbb3478a5cecd0ca9/cbcbf0094877f116-ed/s1280x1920/ba3935de498b66cd2a364991733799103942bcb0.pnj">
+<p align="center"> <img width="600" src="https://64.media.tumblr.com/2ee6c3cffb752b4bbb3478a5cecd0ca9/cbcbf0094877f116-ed/s1280x1920/ba3935de498b66cd2a364991733799103942bcb0.pnj">
 
 <div align="center"> 
   
