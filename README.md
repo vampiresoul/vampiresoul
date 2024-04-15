@@ -4,7 +4,7 @@
 
 <div align="center"> 
   
-  read [rentry](https://rentry.co/strchasm) b4 interacting ++ write in [gstbook](https://vmprism.123guestbook.com/#)!
+  read [rentry](https://rentry.co/westrnights) b4 interacting ++ write in [gstbook](https://vmprism.123guestbook.com/#)!
 
   <div align="center"> 
 
