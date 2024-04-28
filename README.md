@@ -14,4 +14,4 @@
 
 
 <div align="left"> 
-boothill graphic © destinyfaces
+img by destinyfaces
