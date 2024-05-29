@@ -13,4 +13,6 @@ aless! she ﾉ her 6teen ro/eng
   
   read [rentry](https://rentry.co/westrnights) b4 interacting ++ write in [gstbook](https://vmprism.123guestbook.com/#)!
 
+<div align="center"> 
 
+![](https://files.catbox.moe/2xwvws.gif) ![](https://files.catbox.moe/sgalm3.gif) ![](https://files.catbox.moe/olzat4.gif)
