@@ -1,4 +1,4 @@
-<p align="center"> <img width="800" src="https://files.catbox.moe/8arej2.png">
+<p align="center"> <img width="900" src="https://files.catbox.moe/8arej2.png">
 <p align="center"> <img width="500" src="https://cdn.discordapp.com/attachments/675610269699014710/1245458789616975995/boothill_gif_frame.gif?ex=6658d362&is=665781e2&hm=e9909faced9ddcf05acff27557d67b546e04c0edf6ac00d1d8059782639a55fc&">
   
 <div align="center"> 
