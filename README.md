@@ -1,4 +1,3 @@
-<p align="center"> <img width="900" src="https://files.catbox.moe/h3tl7l.png">
 <p align="center"> <img width="900" src="https://files.catbox.moe/vpro0y.png">
 <p align="center"> <img width="900" src="https://files.catbox.moe/52jj92.png">
   
@@ -15,5 +14,3 @@ usually sitting in rhythm area or near spawn
   read [rentry](https://rentry.co/westrnights) b4 interacting ++ write in [retrospring](https://retrospring.net/@vmprism)!
 
 <p align="center"> <img width="900" src="https://files.catbox.moe/vpro0y.png">
-<p align="center"> <img width="900" src="https://files.catbox.moe/76q4pg.png">
-
