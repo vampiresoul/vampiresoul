@@ -1,4 +1,4 @@
-<p align="center"> <img width="400" src="https://files.catbox.moe/45w7ck.png">
+<p align="center"> <img width="400" src="https://files.catbox.moe/kbwdth.png">
 
 <div align="center"> 
   
