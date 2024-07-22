@@ -4,7 +4,7 @@
 <sup>$\text{walk \ proudly \ towards \ your \ future \}\$</sub></sup>
 
 <sup>$\text{with \ your \ head \ held \ high. \}\$</sub></sup>
-<p align="center"> <img width="500" src="https://files.catbox.moe/czib0u.png">
+<p align="center"> <img width="500" src="https://files.catbox.moe/00wonl.png">
 
 <div align="center"> 
   
