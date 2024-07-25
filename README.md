@@ -4,7 +4,7 @@
 <sup>$\text{stay \ with \ me \}\$</sub></sup>
 
 <sup>$\text{as \ we \ cross \ the \ empty \ skies \}\$</sub></sup>
-<p align="center"> <img width="300" src="https://files.catbox.moe/t2ywnq.png">
+<p align="center"> <img width="300" src="https://files.catbox.moe/yuovrv.png">
 
 <div align="center"> 
   
