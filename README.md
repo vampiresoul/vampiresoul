@@ -1,11 +1,11 @@
-<p align="center"> <img width="500" src="https://files.catbox.moe/3htzv6.png">
+<p align="center"> <img width="400" src="https://files.catbox.moe/3htzv6.png">
 
 <div align="center"> 
   
 <sup>$\text{stay \ with \ me \}\$</sub></sup>
 
 <sup>$\text{as \ we \ cross \ the \ empty \ skies \}\$</sub></sup>
-<p align="center"> <img width="500" src="https://files.catbox.moe/gl58lu.png">
+<p align="center"> <img width="400" src="https://files.catbox.moe/gl58lu.png">
 
 <div align="center"> 
   
