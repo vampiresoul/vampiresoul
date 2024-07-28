@@ -8,4 +8,4 @@
 
 <div align="center"> 
   
-<sup>[rentry](https://rentry.co/westrnights)⠀⠀ ⠀⠀ [atabook](https://soulripper.atabook.org/)</sub></sup>
+<sup>[RENTRY](https://rentry.co/westrnights)⠀⠀ ⠀⠀ [ATABOOK](https://soulripper.atabook.org/)</sub></sup>
