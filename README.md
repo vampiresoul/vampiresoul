@@ -1,4 +1,4 @@
-<p align="center"> <img width="400" src="https://files.catbox.moe/v5u9r6.png">
+
 <div align="center"> 
   
 <sup>$\text{stay \ with \ me \}\$</sub></sup>
