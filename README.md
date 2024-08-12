@@ -1,7 +1,7 @@
 
 <div align="center"> 
   
-![](https://komarev.com/ghpvc/?username=vampiresoul&color=252525&label=ꔫ)
+![](https://komarev.com/ghpvc/?username=vampiresoul&color=a3541b&label=ꔫ)
 
 <p align="center"> <img width="400" src="https://files.catbox.moe/jtzcdj.png">
 
