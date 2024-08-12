@@ -3,7 +3,7 @@
   
 ![](https://komarev.com/ghpvc/?username=vampiresoul&color=252525&label=ꔫ)
 
-<p align="center"> <img width="400" src="https://files.catbox.moe/wfrq9o.png">
+<p align="center"> <img width="400" src="https://files.catbox.moe/jtzcdj.png">
 
 <div align="center"> 
  
