@@ -7,4 +7,4 @@
 
 <div align="center"> 
  
-<sup>[RENTRY](https://rentry.co/heartsbane)⠀⠀ ⠀⠀ [ATABOOK](https://soulripper.atabook.org/)</sub></sup>
+<sup>[RENTRY](https://rentry.co/flavorsofsin)⠀⠀ ⠀⠀ [ATABOOK](https://soulripper.atabook.org/)</sub></sup>
