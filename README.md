@@ -2,11 +2,12 @@
 
 <div align="center"> 
 
-<sup>**nyx⠀6teen⠀she/her**
+<sup>**nyx⠀6teen⠀she/her**</sub></sup>
 
 <div align="center"> 
  
-<sup>[**rentry**](https://rentry.co/domainclash)⠀⠀ ⠀[**atabook**](https://soulripper.atabook.org/)⠀⠀ ⠀[**guns.lol**](https://guns.lol/soulripper)
+<sup>[**rentry**](https://rentry.co/domainclash)⠀⠀ ⠀[**atabook**](https://soulripper.atabook.org/)⠀⠀ ⠀[**guns.lol**](https://guns.lol/soulripper)</sub></sup>
+
 <div align="center"> 
   
 ![](https://komarev.com/ghpvc/?username=vampiresoul&color=9c005d&label=ꔫ)
