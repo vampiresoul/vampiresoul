@@ -2,7 +2,7 @@
 
 <div align="center"> 
 
-<sup>**nyx⠀6teen⠀she/her**</sub></sup>
+<sub>**nyx⠀6teen⠀she/her**
 
 <div align="center"> 
  
