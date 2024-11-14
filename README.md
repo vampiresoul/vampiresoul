@@ -6,7 +6,7 @@
 
 <div align="center"> 
  
-<sup>[**rentry**](https://rentry.co/domainclash)⠀⠀✦⠀⠀[**atabook**](https://soulripper.atabook.org/)⠀⠀✦⠀⠀[**guns.lol**](https://guns.lol/soulripper)</sub></sup>
+<sup>[**rentry**](https://rentry.co/COWGlRL)⠀⠀✦⠀⠀[**atabook**](https://soulripper.atabook.org/)⠀⠀✦⠀⠀[**guns.lol**](https://guns.lol/soulripper)</sub></sup>
 
 <div align="center"> 
   
