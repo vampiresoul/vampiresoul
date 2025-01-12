@@ -10,5 +10,5 @@
 
 <div align="center"> 
  
-<sub>[**rentry**](https://rentry.co/COWGlRL)⠀⠀✦⠀⠀[**atabook**](https://soulripper.atabook.org/)⠀⠀✦⠀⠀[**guns.lol**](https://guns.lol/soulripper)</sub>
+<sub>[**RENTRY**](https://rentry.co/COWGlRL)⠀⠀✦⠀⠀[**ATABOOK**](https://soulripper.atabook.org/)⠀⠀✦⠀⠀[**GUNS.LOL**](https://guns.lol/soulripper)</sub>
 
