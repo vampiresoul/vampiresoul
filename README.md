@@ -1,13 +1,10 @@
 <div align="center"> 
   
-![](https://komarev.com/ghpvc/?username=vampiresoul&color=lightgray&label=ꔫ)
+![](https://komarev.com/ghpvc/?username=vampiresoul&color=f1cb5a&label=ꔫ)
 
-<div align="center"> 
+<p align="center"> <img width="340" src="https://file.garden/Zx4tbq1Z7kthgAaN/inv.jpeg">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z0ocz59axjs7okg9a1ugo6j05&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=9f6f6f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-
-<p align="center"> <img width="17" src="https://files.catbox.moe/k5ttb4.gif">
 
 <div align="center"> 
  
-<sub>[**RENTRY**](https://rentry.co/COWGlRL)⠀⠀✦⠀⠀[**ATABOOK**](https://soulripper.atabook.org/)⠀⠀✦⠀⠀[**GUNS.LOL**](https://guns.lol/soulripper)</sub>
+<sub>[**rentry**](https://rentry.co/COWGlRL)⠀⠀⠀⠀⠀⠀<img width="17" src="https://files.catbox.moe/ta6x1q.gif">⠀⠀⠀⠀⠀⠀[**atabook**](https://soulripper.atabook.org/)</sub>
