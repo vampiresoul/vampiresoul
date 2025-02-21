@@ -7,4 +7,4 @@
 
 <div align="center"> 
  
-<sub>[**rentry**](https://rentry.co/COWGlRL)⠀⠀⠀⠀⠀⠀<img width="17" src="https://files.catbox.moe/ta6x1q.gif">⠀⠀⠀⠀⠀⠀[**atabook**](https://soulripper.atabook.org/)</sub>
+<sub>[**RENTRY**](https://rentry.co/COWGlRL)⠀⠀⠀⠀⠀⠀<img width="17" src="https://files.catbox.moe/ta6x1q.gif">⠀⠀⠀⠀⠀⠀[**ATABOOK**](https://soulripper.atabook.org/)</sub>
