@@ -1,10 +1,10 @@
 <div align="center"> 
   
-![](https://komarev.com/ghpvc/?username=vampiresoul&color=f1cb5a&label=ꔫ)
+![](https://komarev.com/ghpvc/?username=vampiresoul&color=bbd7c6&label=ꔫ)
 
-<p align="center"> <img width="340" src="https://file.garden/Zx4tbq1Z7kthgAaN/inv.jpeg">
+<p align="center"> <img width="300" src="https://file.garden/Zx4tbq1Z7kthgAaN/mizisua.jpeg">
 
 
 <div align="center"> 
  
-<sub>[**RENTRY**](https://rentry.co/VlLTRUM)⠀⠀⠀⠀⠀⠀<img width="17" src="https://files.catbox.moe/ta6x1q.gif">⠀⠀⠀⠀⠀⠀[**ATABOOK**](https://soulripper.atabook.org/)</sub>
+<sub>[**RENTRY**](https://rentry.co/VlLTRUM)⠀⠀⠀⠀⠀⠀<img width="17" src="https://files.catbox.moe/sorwap.gif">⠀⠀⠀⠀⠀⠀[**ATABOOK**](https://soulripper.atabook.org/)</sub>
