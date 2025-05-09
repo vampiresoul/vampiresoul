@@ -7,6 +7,6 @@
 
 <div align="center"> 
  
-<sub>[**RENTRY**](https://rentry.co/VlLTRUM)⠀⠀⠀⠀⠀<img width="20" src="https://i.postimg.cc/kGRWQXHt/bglgvm.gif">⠀⠀⠀⠀⠀[**ATABOOK**](https://soulripper.atabook.org/)</sub>
+<sub>[**RENTRY**](https://rentry.co/VlLTRUM)⠀⠀⠀⠀⠀<img width="17" src="https://i.postimg.cc/kGRWQXHt/bglgvm.gif">⠀⠀⠀⠀⠀[**ATABOOK**](https://soulripper.atabook.org/)</sub>
 
 <div align="center"> 
