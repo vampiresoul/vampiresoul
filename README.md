@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=vampiresoul&color=83c7cb&label=^__^&style=plastic)
 
-<p align="center"> <img width="270" src="https://vampiresoul.neocities.org/sunaxa.jpeg">
+<p align="center"> <img width="300" src="https://vampiresoul.neocities.org/sunaxa.jpeg">
 
 
 <div align="center"> 
