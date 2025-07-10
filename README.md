@@ -7,6 +7,6 @@
 
 <div align="center"> 
  
-<sub>[**RENTRY**](https://rentry.co/VlLTRUM)⠀⠀⠀⠀⠀<img width="20" src="https://i.postimg.cc/bNgHP9rV/coracao2.gif">⠀⠀⠀⠀⠀[**ATABOOK**](https://hyrule.atabook.org/)</sub>
+<sub>[**RENTRY**](https://rentry.co/steIIars)⠀⠀⠀⠀⠀<img width="20" src="https://i.postimg.cc/bNgHP9rV/coracao2.gif">⠀⠀⠀⠀⠀[**ATABOOK**](https://hyrule.atabook.org/)</sub>
 
 <div align="center"> 
