@@ -1,3 +1,6 @@
+⠀
+⠀
+⠀
 <div align="center"> 
   
 ![](https://komarev.com/ghpvc/?username=vampiresoul&color=d98583&label=^__^&style=plastic)
@@ -10,3 +13,7 @@
 <sub>[**RENTRY**](https://rentry.co/steIIars)⠀⠀⠀⠀⠀<img width="20" src="https://files.catbox.moe/2h82h8.gif">⠀⠀⠀⠀⠀[**ATABOOK**](https://hyrule.atabook.org/)</sub>
 
 <div align="center"> 
+
+⠀
+⠀
+⠀
