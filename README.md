@@ -12,7 +12,7 @@
 
 <div align="center"> 
  
-<sub>[**RENTRY**](https://rentry.co/steIIars)⠀⠀⠀⠀⠀<img width="20" src="https://files.catbox.moe/2h82h8.gif">⠀⠀⠀⠀⠀[**ATABOOK**](https://hyrule.atabook.org/)</sub>
+<sub>[**RENTRY**](https://rentry.co/lawism)⠀⠀⠀⠀⠀<img width="20" src="https://files.catbox.moe/2h82h8.gif">⠀⠀⠀⠀⠀[**ATABOOK**](https://hyrule.atabook.org/)</sub>
 
 <div align="center"> 
 
