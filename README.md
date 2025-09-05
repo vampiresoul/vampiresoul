@@ -16,7 +16,7 @@
 
 <div align="center"> 
 
-#### [**rentry**](https://rentry.co/lawism)⠀⠀⠀⠀⠀⠀⠀[atabook](https://hyrule.atabook.org/)⠀⠀⠀⠀⠀⠀⠀[match](https://rentry.co/phaisunaxa)
+#### [**rentry**](https://rentry.co/awaked)⠀⠀⠀⠀⠀⠀⠀[atabook](https://hyrule.atabook.org/)⠀⠀⠀⠀⠀⠀⠀[match](https://rentry.co/phaisunaxa)
 
 
 
